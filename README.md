@@ -7,6 +7,6 @@ Meu nome é Luiz Augusto
 
 ### Você pode entrar em contato comigo
 
-paniaguagarcialuizaugusto@gmail.com
+00001101809310sp@al.educacao.sp.gov.br
 
 @alurastartestudante
